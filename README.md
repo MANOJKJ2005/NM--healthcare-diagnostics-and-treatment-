@@ -1,1 +1,0 @@
-# NM--healthcare-diagnostics-and-treatment-
